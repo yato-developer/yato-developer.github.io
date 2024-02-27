@@ -1,0 +1,1 @@
+# yato-developer.github.io
